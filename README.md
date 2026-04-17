@@ -1,1 +1,1 @@
-## 🧠what should you learn from this project
+## 🧠what can you learn from this project
